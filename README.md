@@ -23,7 +23,7 @@ interests (current)
 </p>
 
 <p align="center">
-trigun ノ golden kamuy ノ psychopomp ノ metal gear ノ gachiakuta ノ outlast ノ idv ノ myth of the machine ノ bad things ノ spy vs spy
+trigun ノ golden kamuy ノ psychopomp ノ metal gear ノ gachiakuta ノ outlast ノ idv ノ motm ノ bad things ノ spy vs spy
 </p>
 
 <p align="center">
