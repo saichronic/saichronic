@@ -39,7 +39,7 @@ i'm pretty laid back but the standards still apply, i don't fw you if you're a p
 </p>
 
 <p align="center">
-everyone is entitled to curate their experience, therefore i block and hide freely
+everyone is entitled to curate their own experience, therefore i block and hide freely
 </p>
 
 <p align="center">
