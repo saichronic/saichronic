@@ -35,7 +35,7 @@ DNI criteria
 </p>
 
 <p align="center">
-i'm pretty laid back but the standards still apply, i don't fw you if you're a pedophile (or like and support loli/shota), racist, anti-lgbtq+, anti semetic, and/or a zionist
+i'm pretty laid back but the standards still apply. i don't fw you if you're a pedophile or like and support loli/shota (ogata and asirpa shippers DNI especially), racist, anti-lgbtq+, anti semetic, and/or a zionist
 </p>
 
 <p align="center">
